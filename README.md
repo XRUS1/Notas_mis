@@ -1,1 +1,1 @@
-# Los misceláneos (mis) son otra forma de ver los (Lab).
+# Los misceláneos (mis) son formas alternativas de (Lab).
